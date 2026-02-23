@@ -25,7 +25,7 @@ $${\space \color{#e0e0e0}but \space \color{#e0e0e0}it \space \color{#e0e0e0}sure
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#e0e0e0}Some things to know about me.}}$ !! </summary>
+<summary>ㅤ ${\textsf{\color{#e0e0e0}Some things to know about me}}$ !! </summary>
 
   <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/fa60fe95.gif?v=49efbe4c"></a>ㅤ» I am straight male, though an ally to the queer community.
   
