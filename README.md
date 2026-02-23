@@ -19,7 +19,32 @@ $${\space \color{#e0e0e0}but \space \color{#e0e0e0}it \space \color{#e0e0e0}sure
 
 </div>
 
+*****
+
 </details>
+
+<details align="center">
+
+<summary>ㅤ ${\textsf{\color{#e0e0e0}Some things to know about me.}}$ !! </summary>
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/pipisicon.png" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/topher.png"></a>ㅤ •〢 [ I have Autism and OCD, currently working on an NPD diagnosis. ]
+  
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sageicon.png" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/adam%20sip.png"></a>ㅤ •〢 [ I mainly use he/him pronouns, but I don't mind any. ]
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/caineicon.png" target="_blank"><img width="22" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/eric%20cartman.png"></a> ㅤ •〢 [ I have echolalia, so you will hear me repeat phrases a lot. ]
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/jackicon.png" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/sheldon.png"></a>ㅤ •〢 [ I am a fictionkin who doesn't mind doubles - int freely. ]
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/sebicon.png" target="_blank"><img width="32" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/maddox.png"></a>ㅤ•〢 [ I am a straight ally to the queer community.]
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/newdandyicon.png" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/max%20g.png"></a>ㅤ •〢 [ I am very blunt and sarcastic - do not take all I say to heart. ]
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/charlie%20dompler.png"></a>ㅤ •〢 [ If you see me kinshift or switch names, do not refer to me as my old name unless given permision. ]
+
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/gumball.png"></a>ㅤ •〢 [ Do not interact if you support any kind of proshipping, especially public proship that exposes children to it.]
+  
+</details>
+
 
 *****
 
