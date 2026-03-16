@@ -62,11 +62,11 @@ $${\space \color{#e0e0e0}I \space \color{#e0e0e0}hear \space \color{#e0e0e0}them
 
   <a href="" target="_blank"><img width="32" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/maddox.png"></a>ㅤᯓ [Dr. Maddox Hickey](https://docs.google.com/document/d/1G55X3VHZhBSBKIfZiAAfil9Uyn8-GwWaI1tQaddDcR4/edit?usp=sharing) [ P:M.A.D. ] ・ Flicker Fiction.
 
-  <a href="" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/max%20g.png"></a>ㅤ ᯓ [Max G - not irl](https://braindump.fandom.com/wiki/Max) [ Brain Dump ] ・ Kin.
+  <a href="" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/max%20g.png"></a>ㅤ ⸝⸝ [Max G - not irl](https://braindump.fandom.com/wiki/Max) [ Brain Dump ] ・ Kin.
 
-  <a href="" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/charlie%20dompler.png"></a>ㅤ ᯓ [Charlie Dompler](https://smilingfriends.fandom.com/wiki/Charlie_Dompler) [ Smiling Friends ] ・ Kin.
+  <a href="" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/charlie%20dompler.png"></a>ㅤ ⸝⸝ [Charlie Dompler](https://smilingfriends.fandom.com/wiki/Charlie_Dompler) [ Smiling Friends ] ・ Kin.
 
-  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/gumball.png"></a>ㅤ ᯓ [Gumball Watterson](https://theamazingworldofgumball.fandom.com/wiki/Gumball_Watterson) [ TAWoG ] ・ Kin.
+  <a href="https://file.garden/Zy_Q1dCuUwZRDNyl/gourdyicon.png" target="_blank"><img width="25" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/gumball.png"></a>ㅤ ⸝⸝ [Gumball Watterson](https://theamazingworldofgumball.fandom.com/wiki/Gumball_Watterson) [ TAWoG ] ・ Kin.
   
 </details>
 
