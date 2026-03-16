@@ -6,7 +6,7 @@ $${\space \color{#949494}there's \space \color{#949494}nothing \space \color{#94
 $${\space \color{#e0e0e0}but \space \color{#e0e0e0}it \space \color{#e0e0e0}sure \space \color{#e0e0e0}is \space \color{#e0e0e0}fun.}$$
 
 <div align = center>
-<img width="536" height="391" alt="5HY2G0s" src="https://i.pinimg.com/1200x/dc/f1/78/dcf1786bb9fd7102e8afdf560c25d0a2.jpg" />
+<img width="536" height="391" alt="5HY2G0s" src="https://i.pinimg.com/736x/28/1d/09/281d09a3d1298d9dba8bde5b91723519.jpg" />
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://top-her69.atabook.org/)⠀⠀⠀[Ko-Fi](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://t0pher69.straw.page/)
@@ -48,7 +48,9 @@ $${\space \color{#e0e0e0}but \space \color{#e0e0e0}it \space \color{#e0e0e0}sure
 
 <summary>ㅤ ${\textsf{\color{#e0e0e0}My top kins/fictionkins}}$ !! </summary>
 
-  <a href="" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/topher.png"></a>ㅤ ★ [Topher Bus](https://villains.fandom.com/wiki/Topher_Bus) [ Clone High ] ・ Heavy Fictkin.
+  <a href="" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/topher.png"></a>ㅤ ★ [Shadow Milk Cookie](https://villains.fandom.com/wiki/Shadow_Milk_Cookie) [ Cookie Run Kingdom ] ・ Fictkin (?)
+
+  <a href="" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/topher.png"></a>ㅤ ᯓ [Topher Bus](https://villains.fandom.com/wiki/Topher_Bus) [ Clone High ] ・ Fictkin.
   
   <a href="" target="_blank"><img width="26" src="https://file.garden/aW_DAafqA36RH8b9/GitHub/adam%20sip.png"></a>ㅤ ᯓ [Adam](https://villains.fandom.com/wiki/Adam_(Hellaverse)) [ Hazbin Hotel ] ・ Fictkin.
 
