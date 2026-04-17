@@ -45,6 +45,12 @@ $${\space \color{#e0e0e0}I \space \color{#e0e0e0}hear \space \color{#e0e0e0}them
    <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/8e9c37dc.gif?v=49efbe4c"></a>ㅤ » Please only use the names listed on my profile. If unsure, message me.
 
   <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery92/e9c997f9.gif?v=49efbe4c"></a>ㅤ » Basic DNI criteria - more included in "PonyTown_Information".
+
+  <a href="" target="_blank"><img width="25" src="https://gifcity.carrd.co/assets/images/gallery11/c58e2fb3.gif?v=49efbe4c"></a>ㅤ » I am autistic and often struggle with social cues / forming sentences properly.
+  
+  <a href="" target="_blank"><img width="25"></a> If you didn't understand something I said or have any questions, please
+
+  <a href="" target="_blank"><img width="25"></a> DM me before jumping to consclusions so no misunderstandings happen. : )
   
 </details>
 
